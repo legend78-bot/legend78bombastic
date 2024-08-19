@@ -1,2 +1,2 @@
 # legend78bombastic
-website game online dengan grafik yang memukau 
+legend78 adalah game online slot yang terpercaya dan memukau
